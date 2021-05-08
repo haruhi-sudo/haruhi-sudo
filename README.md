@@ -1,1 +1,1 @@
-A student from Tianjin Univercity
+STUDENT
